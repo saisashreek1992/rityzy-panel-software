@@ -1,0 +1,1 @@
+# rityzy-panel-software
